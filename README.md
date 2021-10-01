@@ -1,2 +1,3 @@
 # bisa-lah
-Jangan di buat untuk kekerasan ya santuy ae
+AKU SUKANYA SAMA KAMU KALO YANG LAIN NGGAK MAU
+HEHE Cnda
